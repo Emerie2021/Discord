@@ -1,2 +1,2 @@
 # Discord
-Pseudo :
+Pseudo : Shinoby#0608
